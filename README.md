@@ -1,3 +1,5 @@
+(THIS IS AN ARCHIVED MESSAGE OF THE LAST THING THAT Nimbles/Nimblz said AND THIS PIECE OF TEXT IS NOT PART OF THE ORGINAL MESSAGE) (CONTENT WARNING: Suicide)
+
 If you're reading this i've probably been missing for 2 weeks.
 
 I'm not alive anymore.
